@@ -2,3 +2,9 @@ baseURL = 'http://example.org/'
 languageCode = 'en-us'
 title = 'Svatební mazlí.ci 💜 💚'
 theme = "hugo-theme-minos"
+
+[params]
+  subtitle = 'Na Zelenem statku, 24.9. o 11:00'
+
+[markup.goldmark.renderer]
+  unsafe= true

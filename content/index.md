@@ -1,22 +1,31 @@
 ---
-title: "hello"
-date: 2022-07-11T20:28:50+02:00
+title: "Peťka ❤️ Tomáško"
+# date: 2022-07-11T20:28:50+02:00
+omitDate: true
 draft: false
-hidden: true
+hidden: false
+notoc: true
 ---
 
 ![:)](/img/PXL_20210908_115640056.MP.jpg)
 
-Svatba se uskuteční [Na Zelenem Statku](TBD) přes víkend 23. až 25.9.2022.
+<div style="margin: 70px auto; width: 35%; padding: 20px 0 0 20px; border: black 1px solid; font-size: 1.5em; font-weight: bold;">
+📍 <a href="https://www.nazelenemstatku.cz">Na Zelenem Statku</a>
+
+⏳ 23-25.9.2022
+
+💒 obřad 11:00
+</div>
 
 ![Penzion - mapa](/img/penzion-mapa.png)
 
-Obřad bude na tom samem míste v sobotu o 11:00.
-
+Jak víte, tak nejíme maso, a proto ho ani nebudeme podávat na naší svatbě.
+Všechny jídla budou mít štítek s alergeny, aby každý vědel co jí. Neradi bychom
+Vám spúsobili zdravotní potíže.
 
 ## Program
 
-To ještě nevíme.
+To ještě nevíme. 
 
 
 ## Dary
