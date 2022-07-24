@@ -1,4 +1,4 @@
-baseURL = 'http://example.org/'
+baseURL = 'https://svatebni.mazli.ci/'
 languageCode = 'en-us'
 title = 'Svatební mazlí.ci 💜 💚'
 theme = "hugo-theme-minos"
