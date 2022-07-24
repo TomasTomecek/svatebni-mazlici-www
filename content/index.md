@@ -37,11 +37,10 @@ Moc si vážíme, pokud by jste nás poctili nejakým darem. Připravili jsme se
 |----|-----|
 | 🛒 [Elektrické táčky (fúrik, kolečka)](https://stavebni-kolecka.heureka.cz/f:15879:42176990/) | Pro ženicha ať si může odvézt nevěstu. |
 | 🌱 Keříčky, květinky, stromečky do zahrady | Rostlinky nám udělají velikou radost protože budeme díky nim vzpomínat na náš svatební den. |
-| 🛏 Povlečení a prostěradla | Svatební klasika |
+| 🛏 Povlečení a prostěradla | Svatební klasika, protože jsme klasici. |
 | [Zavařovací hrnec](https://zavarovaci-hrnce.heureka.cz/eta-1127-90000/#prehled/) | Pro uchovaní dobrútek na zimu. |
 | 🪣 [Robotický vysavač](https://roboticke-vysavace.heureka.cz/roidmi-eve-plus/#prehled/) | Když kutráme na zahradě, tak potřebujeme malého pomocníčka na šúrovaní |
-| Mlýnek na kafe ||
 | 🚿 [Wapka](https://vysokotlake-cistice.heureka.cz/karcher-k-5-compact-1_630-750_0/#prehled/) | Pro letní schlazení. Auta a kola. |
-| 🥣 Nerezové misky do kuchyně ||
+| 🥣 [Nerezové misky do kuchyně](https://misy.heureka.cz/wmf-06_4570_9990-gourmet-4-ks/#prehled/) | Někde ty dobrútky musíme dat! |
 | ✂ [Núžky na haluze](https://dvourucni-nuzky.heureka.cz/fiskars-112590/#specifikace/) | Cvak cvak |
 
