@@ -25,9 +25,22 @@ Vám spúsobili zdravotní potíže.
 
 ## Program
 
-To ještě nevíme. 
+Oslava naších zásnub v poklidném prostředí penziónu. Podrobnosti doplníme.
 
 
 ## Dary
 
 Moc si vážíme, pokud by jste nás poctili nejakým darem. Připravili jsme seznam věcí které by jse nám hodili v našem společném životě.
+
+| Jméno | Popisek |
+|----|-----|
+| 🛒 [Elektrické táčky (fúrik, kolečka)](https://stavebni-kolecka.heureka.cz/f:15879:42176990/) | Pro ženicha ať si může odvézt nevěstu. |
+| 🌱 Keříčky, květinky, stromečky do zahrady | Rostlinky nám udělají velikou radost protože budeme díky nim vzpomínat na náš svatební den. |
+| 🛏 Povlečení a prostěradla | Svatební klasika |
+| [Zavařovací hrnec](https://zavarovaci-hrnce.heureka.cz/eta-1127-90000/#prehled/) | Pro uchovaní dobrútek na zimu. |
+| 🪣 [Robotický vysavač](https://roboticke-vysavace.heureka.cz/roidmi-eve-plus/#prehled/) | Když kutráme na zahradě, tak potřebujeme malého pomocníčka na šúrovaní |
+| Mlýnek na kafe ||
+| 🚿 [Wapka](https://vysokotlake-cistice.heureka.cz/karcher-k-5-compact-1_630-750_0/#prehled/) | Pro letní schlazení. Auta a kola. |
+| 🥣 Nerezové misky do kuchyně ||
+| ✂ [Núžky na haluze](https://dvourucni-nuzky.heureka.cz/fiskars-112590/#specifikace/) | Cvak cvak |
+
