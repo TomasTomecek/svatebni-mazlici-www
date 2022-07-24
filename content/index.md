@@ -3,7 +3,8 @@ title: "Peťka ❤️ Tomáško"
 # date: 2022-07-11T20:28:50+02:00
 omitDate: true
 draft: false
-hidden: false
+# hidden: false
+single: true
 notoc: true
 ---
 
