@@ -18,7 +18,11 @@ notoc: true
 💒 obřad 11:00
 </div>
 
+## Kam dojet?
+
 ![Penzion - mapa](/img/penzion-mapa.png)
+
+## Co bude pod zub?
 
 Jak víte, tak nejíme maso, a proto ho ani nebudeme podávat na naší svatbě.
 Všechny jídla budou mít štítek s alergeny, aby každý vědel co jí. Neradi bychom
@@ -26,12 +30,12 @@ Vám spúsobili zdravotní potíže.
 
 ## Program
 
-Oslava naších zásnub v poklidném prostředí penziónu. Podrobnosti doplníme.
+Oslava našého dne v poklidném prostředí penziónu. Podrobnosti doplníme.
 
 
 ## Dary
 
-Moc si vážíme, pokud by jste nás poctili nejakým darem. Připravili jsme seznam věcí které by jse nám hodili v našem společném životě.
+Moc si vážíme, pokud by jste nás poctili nejakým darem. Připravili jsme seznam věcí které by jse nám hodili v našem společném životě pro Vaši inspiraci.
 
 | Jméno | Popisek |
 |----|-----|
@@ -44,3 +48,4 @@ Moc si vážíme, pokud by jste nás poctili nejakým darem. Připravili jsme se
 | 🥣 [Nerezové misky do kuchyně](https://misy.heureka.cz/wmf-06_4570_9990-gourmet-4-ks/#prehled/) | Někde ty dobrútky musíme dat! |
 | ✂ [Núžky na haluze](https://dvourucni-nuzky.heureka.cz/fiskars-112590/#specifikace/) | Cvak cvak |
 
+Pokud si něco ze seznamu vyberete, dejte prosím vědet Tomove sestře a my tu položku vyškrtneme. [Email](evajazmina@gmail.com) a [Facebook](https://www.facebook.com/EvaJTomeckova).
