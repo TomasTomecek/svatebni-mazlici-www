@@ -48,4 +48,4 @@ Moc si vážíme, pokud by jste nás poctili nejakým darem. Připravili jsme se
 | 🥣 [Nerezové misky do kuchyně](https://misy.heureka.cz/wmf-06_4570_9990-gourmet-4-ks/#prehled/) | Někde ty dobrútky musíme dat! |
 | ✂ [Núžky na haluze](https://dvourucni-nuzky.heureka.cz/fiskars-112590/#specifikace/) | Cvak cvak |
 
-Pokud si něco ze seznamu vyberete, dejte prosím vědet Tomove sestře a my tu položku vyškrtneme. [Email](evajazmina@gmail.com) a [Facebook](https://www.facebook.com/EvaJTomeckova).
+Pokud si něco ze seznamu vyberete, dejte prosím vědet Tomove sestře Eve a my tu položku vyškrtneme. [Email](evajazmina@gmail.com) a [Facebook](https://www.facebook.com/EvaJTomeckova) na ni.
