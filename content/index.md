@@ -30,9 +30,39 @@ vám způsobili zdravotní potíže. :)
 
 ## Program
 
-Oslava našeho dne v poklidném prostředí penzionu. Sejdeme se již v pátek odpoledne/navečer.  
+Penzion máme rezervovaný na celý víkend. Můžete přijet a ubytovat se v pátek již od 14:00. Pokud by jste měli zájem o wellness, masáž, plážový volejbal, koupačku se žábama, tak si můžete [rezervovat termín tady na stránkách penzionu](https://www.nazelenemstatku.cz/wellness/).
 
-Podrobnosti ohledně celého víkendu doplníme, jakmile si to všechno upřesníme s penzionem.
+### Pátek
+
+Večeře v restauraci. Objednáte si normálně z lístku. Domluvili jsme nemasové special jídlo: indické vegan kari. Dejte nám prosím vědet pokud budete mít zájem o kari ať počet porcí domluvíme dopředu.
+
+V pátek budeme zdobit, dolaďovat detaily. A hrát plažový voliš! 🏖️ Jinak je program volný.
+
+
+
+### Sobota
+
+od 8:00 snída
+
+11:00 👰 obřad 🤵
+
+11:20 společné focení
+
+12:00 oběd formou rautu
+
+13:30 krájení dortu a sweetbar
+
+14:00 focení novomanželů
+
+15:30 hry
+
+17:00 podáva se večeře
+
+18:00 první tanec
+
+19:00 *tajný program*
+
+21:00 a další véča
 
 
 ## Dary
