@@ -76,7 +76,7 @@ Moc si vážíme, pokud by jste nás chtěli poctít nějakým darem. Připravil
 | 🛏 [Povlečení a prostěradla](https://www.matejovsky-povleceni.cz/svetle-hnede-prosteradlo-1.html) | Svatební klasika, protože jsme klasici. (Prostěradlo by se nám hodilo velur velikost 200/220 a klidně i nějaké povlečení 140/220. Ženich nemá rád saténové provedení :)) |
 | ~~🍲 [Zavařovací hrnec](https://zavarovaci-hrnce.heureka.cz/eta-1127-90000/#prehled/)~~ | ~~Pro uchování dobrútek na zimu.~~ obsazeno |
 | 🪣 [Robotický vysavač](https://roboticke-vysavace.heureka.cz/roidmi-eve-plus/#prehled/) | Zatímco kutráme na zahradě, tak potřebujeme malého pomocníčka na šúrovaní |
-| 🚿 [Wapka](https://vysokotlake-cistice.heureka.cz/karcher-k-5-compact-1_630-750_0/#prehled/) | Pro letní schlazení. Auta a kola. |
+| ~~🚿 [Wapka](https://vysokotlake-cistice.heureka.cz/karcher-k-5-compact-1_630-750_0/#prehled/)~~ | ~~Pro letní schlazení. Auta a kola.~~ obsazeno |
 | 🥣 [Nerezové misky do kuchyně](https://misy.heureka.cz/wmf-06_4570_9990-gourmet-4-ks/#prehled/) | Někde ty dobrútky musíme dat! |
 | ✂ [Núžky na haluze](https://dvourucni-nuzky.heureka.cz/fiskars-112590/#specifikace/) | Cvak cvak |
 
