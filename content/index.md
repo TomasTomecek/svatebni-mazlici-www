@@ -8,7 +8,7 @@ single: true
 notoc: true
 ---
 
-![:)](/img/PXL_20210908_115640056.MP.jpg)
+![:)](/img/tomu-ver.jpg)
 
 <div style="margin: 70px auto; width: 35%; padding: 20px 0 0 20px; border: black 1px solid; font-size: 1.5em; font-weight: bold;">
 📍 <a href="https://www.nazelenemstatku.cz">Na Zeleném Statku</a>
