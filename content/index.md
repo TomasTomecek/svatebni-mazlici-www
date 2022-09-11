@@ -77,7 +77,7 @@ Moc si vážíme, pokud by jste nás chtěli poctít nějakým darem. Připravil
 | ~~🍲 [Zavařovací hrnec](https://zavarovaci-hrnce.heureka.cz/eta-1127-90000/#prehled/)~~ | ~~Pro uchování dobrútek na zimu.~~ obsazeno |
 | ~~🪣 [Robotický vysavač](https://roboticke-vysavace.heureka.cz/roidmi-eve-plus/#prehled/)~~ | ~~Zatímco kutráme na zahradě, tak potřebujeme malého pomocníčka na šúrovaní.~~ obsazeno |
 | ~~🚿 [Wapka](https://vysokotlake-cistice.heureka.cz/karcher-k-5-compact-1_630-750_0/#prehled/)~~ | ~~Pro letní schlazení. Auta a kola.~~ obsazeno |
-| 🥣 [Nerezové misky do kuchyně](https://misy.heureka.cz/wmf-06_4570_9990-gourmet-4-ks/#prehled/) | Někde ty dobrútky musíme dat! |
+| ~~🥣 [Nerezové misky do kuchyně](https://misy.heureka.cz/wmf-06_4570_9990-gourmet-4-ks/#prehled/)~~ | ~~Někde ty dobrútky musíme dat!~~ obsazeno |
 | ~~✂ [Núžky na haluze](https://dvourucni-nuzky.heureka.cz/fiskars-112590/#specifikace/)~~ | ~~Cvak cvak~~ obsazeno |
 | 🍼 [Filtrační konvice](https://filtracni-konvice-a-lahve.heureka.cz/brita-marella-xl/#prehled/) | Dětská láhev pro dospělé |
 
