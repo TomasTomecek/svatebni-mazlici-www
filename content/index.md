@@ -79,6 +79,6 @@ Moc si vážíme, pokud by jste nás chtěli poctít nějakým darem. Připravil
 | ~~🚿 [Wapka](https://vysokotlake-cistice.heureka.cz/karcher-k-5-compact-1_630-750_0/#prehled/)~~ | ~~Pro letní schlazení. Auta a kola.~~ obsazeno |
 | ~~🥣 [Nerezové misky do kuchyně](https://misy.heureka.cz/wmf-06_4570_9990-gourmet-4-ks/#prehled/)~~ | ~~Někde ty dobrútky musíme dat!~~ obsazeno |
 | ~~✂ [Núžky na haluze](https://dvourucni-nuzky.heureka.cz/fiskars-112590/#specifikace/)~~ | ~~Cvak cvak~~ obsazeno |
-| 🍼 [Filtrační konvice](https://filtracni-konvice-a-lahve.heureka.cz/brita-marella-xl/#prehled/) | Dětská láhev pro dospělé |
+| ~~🍼 [Filtrační konvice](https://filtracni-konvice-a-lahve.heureka.cz/brita-marella-xl/#prehled/)~~ | ~~Dětská láhev pro dospělé~~ obsazeno |
 
 Pokud si něco ze seznamu vyberete, dejte prosím vědet Tomově sestře Evě a my tu položku vyškrtneme. [Email: evajazmina@gmail.com](mailto:evajazmina@gmail.com) a [Facebook](https://www.facebook.com/EvaJTomeckova) na ni.
