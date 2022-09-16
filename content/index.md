@@ -60,8 +60,6 @@ od 8:00 snída
 
 18:00 první tanec
 
-19:00 *tajný program*
-
 21:00 a další véča
 
 
