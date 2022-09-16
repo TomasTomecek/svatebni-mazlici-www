@@ -44,7 +44,7 @@ V pátek budeme zdobit, dolaďovat detaily. A hrát plažový voliš! 🏖️ Ji
 
 od 8:00 snída
 
-11:00 👰 obřad 🤵
+11:00 👰 obřad 🤵 (ve stoje, venku)
 
 11:20 společné focení
 
