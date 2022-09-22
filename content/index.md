@@ -34,7 +34,7 @@ Penzion máme rezervovaný na celý víkend. Můžete přijet a ubytovat se v p�
 
 ### Pátek
 
-Večeře v restauraci. Objednáte si normálně z lístku. Domluvili jsme nemasové special jídlo: indické vegan kari. Dejte nám prosím vědet pokud budete mít zájem o kari ať počet porcí domluvíme dopředu.
+Večeře v restauraci. Objednáte si normálně z lístku. Domluvené nemasové kari je už navařeno a nejde objednat navíc.
 
 V pátek budeme zdobit, dolaďovat detaily. A hrát plažový voliš! 🏖️ Jinak je program volný.
 
